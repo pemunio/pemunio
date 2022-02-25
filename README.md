@@ -6,7 +6,7 @@
 - czasem wychodze na dwor
 - lubie dzika muze
 
-====================================================================
+==============================================================================================================
 
 - spotify: https://open.spotify.com/user/bc95zpvef3qc4ocw136yx90yq
 - youtube: https://www.youtube.com/channel/UCqYPi9JFlqM3Mjwsc5VxrEg
