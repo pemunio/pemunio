@@ -1,5 +1,7 @@
 *co sie robi na githubie XD?*
 
+
+
 - no ogolem pyton git
 - miszel to jest kozak a hejterow trzeba jebac
 - kocham anime dziewczynki
