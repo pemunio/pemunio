@@ -1,4 +1,4 @@
-                          *boobz*
+*do czego sluzy github?*
 
 - no ogolem pyton git
 - miszel to jest kozak a hejterow trzeba jebac
