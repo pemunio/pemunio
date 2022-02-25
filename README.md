@@ -1,4 +1,4 @@
-*boobz*
+                          *boobz*
 
 - no ogolem pyton git
 - miszel to jest kozak a hejterow trzeba jebac
@@ -12,3 +12,6 @@
 - youtube: https://www.youtube.com/channel/UCqYPi9JFlqM3Mjwsc5VxrEg
 - twitter: https://twitter.com/pemunio07
 - instagram: https://www.instagram.com/jakub_rolle/
+
+============================================================================================
+
